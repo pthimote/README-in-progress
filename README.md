@@ -2,7 +2,6 @@
 
 ![2022-10-15](https://user-images.githubusercontent.com/110247078/202723801-fa5ee0c0-05ef-40ca-aadd-89ae59992c9e.png)
 
-https://www.instagram.com/p/CAt9Ve_pLbr/
 
 ## subtitle 
 I've been learning how to become a software engineer for a couple of months. In my studies ive learned how to do the fundamentals of HTML, CSS, Javascript. Taking classes as a flex student at FlatIron school. 
