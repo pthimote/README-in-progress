@@ -1,6 +1,6 @@
 # Hi, I'm Paul Thimote
 
-![](https://www.instagram.com/p/CAt9Ve_pLbr/)
+![2022-10-15](https://user-images.githubusercontent.com/110247078/202723801-fa5ee0c0-05ef-40ca-aadd-89ae59992c9e.png)
 
 https://www.instagram.com/p/CAt9Ve_pLbr/
 
