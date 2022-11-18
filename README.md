@@ -1,6 +1,6 @@
 # Hi, I'm Paul Thimote
 
-![hiking](https://www.instagram.com/p/CAt9Ve_pLbr/)
+![](https://www.instagram.com/p/CAt9Ve_pLbr/)
 
 https://www.instagram.com/p/CAt9Ve_pLbr/
 
